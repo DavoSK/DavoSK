@@ -20,7 +20,7 @@ Here are some ideas to get you started:
 █░║░░░░██░████████████  
 █░░░░░░▄▄░░█░░░░░░▀░▀  
 ░▀▄▄▄▄▀░░▀▀  
-- ❤ 🇸🇰 24. Yo, in love with 🎸🎶🎤🎨💻☕.
+- ❤ 🇸🇰 25. Yo, in love with 🎸🎶🎤🎨💻☕.
 - Going with the flow🌊
 
 <h3 align="left">Things that i know, worked with or i wanna learn:</h3>
